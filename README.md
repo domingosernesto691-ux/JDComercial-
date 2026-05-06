@@ -1,2 +1,0 @@
-# JDComercial-
-Ecossistema digital angolano 
